@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m developer
+🔭 Curiosity 
 
 
 ## 🌐 Socials:
